@@ -1,2 +1,1 @@
-# EPISODE.1
-# UPTIMEROBOT WEBSITE!: [UPTIMEROBOT](https://uptimerobot.com)
+# ANY HELP JOIN [HERE](https://discord.gg/DNmdJnZTrK)
